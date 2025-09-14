@@ -1,2 +1,2 @@
 # GrimWare
-Grimware script
+Dont try to bypass key from here i put mesures lol
